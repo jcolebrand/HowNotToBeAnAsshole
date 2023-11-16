@@ -10,7 +10,7 @@ Wanna get better?
 
 Talk about it.
 
-Talk about it with your parents. Talk about it with your friends. Talk about it with strangers (but for the love of Pete -and Pete's a nice guy- establish a rapport with them first).
+Talk about it with your friends. Talk about it with strangers (but for the love of Pete -and Pete's a nice guy- establish a rapport with them first).
 
 Ask questions.
 
